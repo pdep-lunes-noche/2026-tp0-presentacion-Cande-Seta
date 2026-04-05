@@ -1,1 +1,12 @@
-[![Review Assignment Due Date](https://classroom.github.com/assets/deadline-readme-button-22041afd0340ce965d47ae6ef1cefeee28c7c493a6346c4f15d667ab976d596c.svg)](https://classroom.github.com/a/b3l8vQxo)
+
+## Presentacion
+
+### Candela Agustina Seta
+
+![unnamed2](https://github.com/user-attachments/assets/c66ad4c2-2513-43e8-9d39-d2d2d1d3133b)
+
+Datos Importantes: 
+- Mi legajo es 2040645
+- Tengo 23 Años
+- Detesto las injusticias 
+- Amo a los perros y tengo una peluqueria canina
